@@ -1,1 +1,6 @@
 # Activity-lab-3
+
+ON THIS LAB ACTIVITY 
+OUR INSTRUCTOR INSTRUCT US TO CREATE A PERSON BASED AGE
+
+https://youtube.com/shorts/fi2Nn0wQIzU?si=PHV7HpEO9XQAXoHk
